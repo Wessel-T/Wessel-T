@@ -1,10 +1,9 @@
-- 👋 Hi, I’m @Wessel-T
-- 👀 I’m interested in gta 6
-- 🌱 I’m currently learning about shit
-- 💞️ I’m looking to collaborate on terroristism
-- 📫 How to reach me just dont
-
-<!---
-Wessel-T/Wessel-T is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Hi, my name is, what? My name is, who?
+My name is, chka-chka, Slim Shady
+Hi, my name is, huh? My name is, what?
+My name is, chka-chka, Slim Shady
+Hi, my name is, what? (Excuse me) My name is, who?
+My name is, chka-chka, Slim Shady
+(Can I have the attention of the class for one second?)
+Hi, my name is, huh? My name is, what?
+My name is, chka-chka, Slim Shady
