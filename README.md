@@ -7,3 +7,27 @@ My name is, chka-chka, Wezel
 (Can I have the attention of the class for one second?)
 Hi, my name is, huh? My name is, what?
 My name is, chka-chka, Wezel
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+https://github.com/ROCMondriaanTIN/sd23-p04-herkansing
